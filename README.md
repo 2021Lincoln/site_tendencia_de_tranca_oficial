@@ -1,1 +1,0 @@
-# site_tendencia_de_tranca_oficial
